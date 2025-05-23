@@ -1,5 +1,3 @@
-## Paste below a summary of the available free information provided by Dr. Sheryl Gonzalez and then below that, separated by a line of *, a summary of 'why an 8 year old is acting like a moody teenager?' based on her research?
-
 ## Dr. Sheryl Gonzalez Ziegler - Available Free Content
 
 **Professional Background:**
